@@ -11,3 +11,5 @@
 
 ![GRAPHIC-ERA-LOGO](https://github.com/user-attachments/assets/4dbc6795-65f3-4d88-9569-8fdbc6a6f224)
 ![Madhyamik-Shiksha-Vibhag-UP](https://github.com/user-attachments/assets/4237bdb0-dd2e-4560-b224-71b316f9cbc3)
+
+![Screenshot 2024-09-24 214014](https://github.com/user-attachments/assets/4dfe0b82-0bf2-4d5c-8e5e-86039bcd7306)
