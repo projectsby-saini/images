@@ -13,3 +13,6 @@
 ![Madhyamik-Shiksha-Vibhag-UP](https://github.com/user-attachments/assets/4237bdb0-dd2e-4560-b224-71b316f9cbc3)
 
 ![Screenshot 2024-09-24 214014](https://github.com/user-attachments/assets/4dfe0b82-0bf2-4d5c-8e5e-86039bcd7306)
+
+![85f69649-5387-44c2-ba45-81ae13812e36-cover](https://github.com/user-attachments/assets/e5f7e040-35ae-4d35-ad3c-33db57a9cc7b)
+![images](https://github.com/user-attachments/assets/09a5b0e9-3a35-4d80-a76d-ed0ca63bb238)
